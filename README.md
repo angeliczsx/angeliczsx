@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @angeliczsx you can call me via!
 - 👀 I’m interested in books, kpop and anime
 - 🌱 I’m currently learning japanese and korean hihi. but my focus now on programming
-- 💞️ I’m looking to friends who has same interest with me!
+- 💞️ I’m looking for friends who has same interest with me!
 - 📫 How to reach me? here's my email (viaalvia72@gmail.com)
 - hope we could get closer soon
 - see u! <3
